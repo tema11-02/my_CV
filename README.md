@@ -8,3 +8,5 @@ Experience
 Skills 
 
 Education
+
+Hobbies
